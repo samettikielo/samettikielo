@@ -1,1 +1,1 @@
-learning to use Github as my portfolio!
+🌱 learning to use Github as my portfolio! 🫶
